@@ -12,7 +12,6 @@ Từ Khóa: kí tự đặc biệt, kí tự đặc biệt ff, kí tự đặc b
 Địa Chỉ: 284 Cộng Hòa, Phường 13, Quận Tân Bình, Thành phố Hồ Chí Minh
 Gmail: mongaotutien.vn@gmail.com
 
-https://mongaotutien.vn/
 
 https://kenhtingame.com/mobile/game-afk-tu-tien-hay-nhat-2020-mong-ao-tu-tien-tung-landing-do-kiep-hoa-than-chinh-thuc-mo-tai/174618
 
